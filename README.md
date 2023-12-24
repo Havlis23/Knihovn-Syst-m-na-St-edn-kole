@@ -1,0 +1,1 @@
+# Knihovn-Syst-m-na-St-edn-kole
